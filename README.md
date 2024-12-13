@@ -14,7 +14,7 @@ I like pikmin, homestuck, terraria, and will wood, and other things
 
 I block freely (and encourage you to do the same, if i dont fw someone i block them lol)
 
-i play on tablet 99% of thetime but sometimes im on desktop (if i type with a ⭐ ;; at the start of my messages im on desktop)
+if youre wondering about the ⭐ ;; i sometimes put in my messages its a typing quirk
 
 c+h is fine unless otherwise
 

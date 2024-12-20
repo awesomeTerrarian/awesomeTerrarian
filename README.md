@@ -10,7 +10,7 @@ Enniu he it bug ^_^
 
 Anyone can interact (perferrably through whispers as i'm often offtab), but do dni if i fall under your dni, or you're under 13.
 
-I like pikmin, homestuck, terraria, and will wood, and other things
+I like pikmin, homestuck, terraria, and weezer, and other things
 
 I block freely (and encourage you to do the same, if i dont fw someone i block them lol)
 

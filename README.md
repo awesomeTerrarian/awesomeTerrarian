@@ -32,4 +32,5 @@ c+h is fine unless otherwise
 
 ![image](https://github.com/user-attachments/assets/ee850c5f-3aca-48b5-a7ff-d279dace812c)![image](https://github.com/user-attachments/assets/1b39c527-a4c2-4e24-9fb6-870ffd8026dc)![image](https://github.com/user-attachments/assets/4d29c6d8-038d-4f52-8627-54bf94d15ca7)![image](https://github.com/user-attachments/assets/08f89514-8fc8-451d-b154-cab898b2edcc)![image](https://github.com/user-attachments/assets/f0942820-85fb-4a02-97ef-5c09b0f29664)![image](https://github.com/user-attachments/assets/e0e790e3-d4c3-411e-ba20-1fb90fc8622f)![](https://i.imgur.com/anFqDoZ.png)
 
-![](https://files.catbox.moe/yu5p32.jpeg)
+![](https://files.catbox.moe/f8wril.jpeg)
+merry weezermas 😊

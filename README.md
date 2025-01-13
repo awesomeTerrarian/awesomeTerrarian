@@ -8,19 +8,19 @@
 
 Enniu he it bug ^_^
 
-Anyone can interact (perferrably through whispers as i'm often offtab), but do dni if i fall under your dni, or you're under 13.
+Anyone can interact unless i fall under your dni or you're under 13.
 
-I like pikmin, dandys world, terraria, and weezer, and other things (dw fans iwc though)
+Interests include: pikmin, terraria, weezer, and dandys world! (i have more interests, check ny strawpage for taht)
 
 I block freely (and encourage you to do the same, if i dont fw someone i block them lol)
 
-if youre wondering about the ⭐ ;; i sometimes put in my messages its a typing quirk
+if youre wondering about the ⭐ ;; i sometimes put in my messages, its a typing quirk
 
-c+h is fine unless otherwise
+c+h is fine but let me know beforehand (i might move if you just randomly hide behind me sorry)
 
 🟢/💬 = Im online! Feel free to int
 
-🌙 = Im online! but likley offtab (pls int through whispers)
+🌙 = Im online! but likely offtab. W2int
 
 ⛔ = Busy, probably wont respond to anything + may have whispers off
 

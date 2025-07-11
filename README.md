@@ -8,13 +8,13 @@
 
 (this is a wip Sorry)
 
-Hihi!!! I'm Enniu!! he it bug
+Hi! I'm enniu, you've probably seen me around docks or rarely the cafe.. I'm not that active on this game anymore but i still log on any once in a while
 
-c+h is always fine but id like it if you let me know first!!
+Anyone over 13 can interact but i block freely, if you wanna know why ask me on my strawpage/atabook
 
-i like terraria, songs from the black hole, weezer, pikmin, and dandys world!!! (dandys world fans iwc please)
+C+H is always fine, although i would like if you let me know first
 
-please dni if youre under 13 !!
+I like weezer a lot, i have other interests but if you like weezer and/or songs from the black hole PLEASE interact
 
 ![](https://files.catbox.moe/rb0x8l.png)![](https://files.catbox.moe/t54h1l.gifv)![](https://files.catbox.moe/6ixhve.png)![](https://files.catbox.moe/pfisqj.gif)![](https://files.catbox.moe/0k8za4.png)![](https://files.catbox.moe/9dacgi.gif)![](https://files.catbox.moe/hvl579.gif)![](https://files.catbox.moe/icizng.gif)![](https://files.catbox.moe/k1swwh.webp)![](https://files.catbox.moe/fiky1f.png)![](https://files.catbox.moe/f6j8vd.jpeg)![](https://files.catbox.moe/xpf1wu.webp)![](https://files.catbox.moe/dqage5.webp)![](https://files.catbox.moe/g7wioi.webp)![](https://files.catbox.moe/tklk0o.jpg)![](https://files.catbox.moe/nxmm11.jpeg)![](https://files.catbox.moe/zfzxlz.gif)![](https://files.catbox.moe/m8q66f.jpg)![](https://files.catbox.moe/vznr2z.pnj)![](https://files.catbox.moe/hwcf6o.png)![](https://files.catbox.moe/h797b0.webp)![](https://files.catbox.moe/fkcisu.pnj)![](https://files.catbox.moe/lbgt3d.webp)![](https://files.catbox.moe/1q6iff.gif)![](https://files.catbox.moe/chcfly.png)![](https://files.catbox.moe/p68a3c.gif)![](https://files.catbox.moe/w3uclb.png)![](https://files.catbox.moe/ybb156.png)![](https://files.catbox.moe/zze4da.png)![](https://files.catbox.moe/lzqfvm.webp)![](https://files.catbox.moe/btj5jj.png)![](https://files.catbox.moe/16wy5n.jpg)![](https://files.catbox.moe/h797b0.webp)![](https://files.catbox.moe/oj9zgq.png)![](https://files.catbox.moe/49wzwr.png)![](https://files.catbox.moe/hj27k3.png)![](https://files.catbox.moe/bqifd0.png)![](https://files.catbox.moe/b9z6ik.png)![](https://files.catbox.moe/md71q9.png)![](https://files.catbox.moe/yntj6c.png)![](https://files.catbox.moe/jaxumc.gif)![](https://files.catbox.moe/46009h.png)![](https://files.catbox.moe/mz2dam.png)![](https://files.catbox.moe/vznr2z.pnj)![](https://files.catbox.moe/t0lmbz.png)
 
